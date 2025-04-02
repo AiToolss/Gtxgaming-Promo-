@@ -73,7 +73,7 @@ A: Yes! The promo applies to any of their 50+ supported titles.
 ### **Final Call to Action: Don’t Miss Out!**  
 The **GTXGaming Promo Code 2025** is your ticket to premium hosting at a fraction of the cost. Whether you’re a casual player or a competitive clan, this deal ensures smooth, affordable hosting.  
 
-**[Secure Your 75% Discount Now →](https://www.gtxgaming.co.uk/clientarea/aff.php?aff=3595)**  
+**[Secure Your Discount Now →](https://www.gtxgaming.co.uk/clientarea/aff.php?aff=3595)**  
 
 **Act fast—this exclusive offer won’t last forever!**  
 
